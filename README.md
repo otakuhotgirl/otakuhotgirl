@@ -9,13 +9,12 @@
 　
 　
 　
+<div style="text-align: center;">
+</div>
 
-<p align="center">
  
  [ata](https://sixeyesangel.atabook.org/)      [straw](https://satoruuaddict.straw.page/)
  
-</p>
-
 
 
 <!--
