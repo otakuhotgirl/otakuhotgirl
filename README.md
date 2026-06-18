@@ -4,7 +4,7 @@
 
 
 
-[ata] (https://sixeyesangel.atabook.org/)       [straw]  (https://satoruuaddict.straw.page/)
+[ata](https://sixeyesangel.atabook.org/)       [straw](https://satoruuaddict.straw.page/)
 
 
 
