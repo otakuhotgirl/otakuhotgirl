@@ -7,9 +7,8 @@
 　
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
 
-<p align="center">
+
   [rentry](https://rentry.co/torusangel) [ata](https://sixeyesangel.atabook.org/) [straw](https://satoruuaddict.straw.page/)
-</p>
 
 <!--
 **otakuhotgirl/otakuhotgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
