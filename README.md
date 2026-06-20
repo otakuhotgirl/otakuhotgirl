@@ -1,8 +1,13 @@
 ## 
-　
-　 
+　<p align="center">
+ i'm here to save you!
+　 </p>
 　
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
+
+<p align="center">
+  you cryin'?
+</p>
 
 <p align="center">
 <a href="https://rentry.co/torusangel">rentry</a>ㅤ<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ<a href="https://satoruuaddict.straw.page/">straw</a>
