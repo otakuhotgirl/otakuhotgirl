@@ -7,7 +7,7 @@
 　
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
 　
-[rentry] (https://rentry.co/torusangel) [ata] (https://sixeyesangel.atabook.org/) [straw] (https://satoruuaddict.straw.page/)
+[rentry](https://rentry.co/torusangel) [ata](https://sixeyesangel.atabook.org/) [straw](https://satoruuaddict.straw.page/)
 　
 
 <!--
