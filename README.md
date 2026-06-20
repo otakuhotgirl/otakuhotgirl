@@ -5,7 +5,7 @@
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
 
 <p align="center">
-<a href="https://rentry.co/torusangel">rentry</a>ㅤ<a href="lhttps://sixeyesangel.atabook.org/">atabook</a>ㅤ<a href="https://satoruuaddict.straw.page/">straw</a>
+<a href="https://rentry.co/torusangel">rentry</a>ㅤ<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ<a href="https://satoruuaddict.straw.page/">straw</a>
 </p>
 <!--
 **otakuhotgirl/otakuhotgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
