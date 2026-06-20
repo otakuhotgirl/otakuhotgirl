@@ -6,8 +6,8 @@
 
 <p align="center">
 <a href="https://rentry.co/torusangel">rentry</a>ㅤ<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ<a href="https://satoruuaddict.straw.page/">straw</a>
-
   </p>
+
   
   <p align="center">
   <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ<a href="https://memoriees.straw.page/">memories</a
