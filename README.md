@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/torusangel">rentry</a>   <a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
+<a href="https://rentry.co/torusangel">rentry</a> <a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
   </p>
 
   
