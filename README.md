@@ -15,7 +15,8 @@
 
   
   <p align="center">
-  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤㅤ <a href="https://memoriees.straw.page/">memories</a
+  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤㅤ <a href="https://memoriees.straw.page/">memories</a>ㅤㅤ<a href="https://satoshikacanon.straw.page/">yume</a>
+                                                                                                                     
   </p>
 <!--
 **otakuhotgirl/otakuhotgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
