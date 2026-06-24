@@ -10,17 +10,15 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/torusangel">rentry</a> ㅤ　<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
+<a href="https://rentry.co/torusangel">rentry</a> ㅤ<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
   </p>
 
   
   <p align="center">
-  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤㅤ <a href="https://memoriees.straw.page/">memories</a>ㅤㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
+  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memories</a>ㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
                                                                                                                      
   </p>
 
-![alt text](https://kommodo.ai/i/1LmAgY8lXRGcz3h9AXVc)
-  
 <!--
 **otakuhotgirl/otakuhotgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
