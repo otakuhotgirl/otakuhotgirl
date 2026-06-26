@@ -10,12 +10,12 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/torusangel">rentry</a> ㅤ<a href="https://sixeyesangel.atabook.org/">atabook</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
+<a href="https://rentry.co/torusangel">rentry</a> ㅤ<a href="https://sixeyesangel.atabook.org/">ata</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
   </p>
 
   
   <p align="center">
-  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memories</a>ㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
+  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memo</a>ㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
                                                                                                                      
   </p>
 
