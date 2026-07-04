@@ -1,3 +1,23 @@
+## 
+　<p align="center">
+ i'm here to save you!
+　 </p>
+　
+![alt text](https://files.catbox.moe/hv12bc.jpg)
+
+<p align="center">
+  you cryin'?
+</p>
+
+<p align="center">
+<a href="https://rentry.co/torusangel">rentry</a> ㅤ<a href="https://sixeyesangel.atabook.org/">ata</a>ㅤ <a href="https://satoruuaddict.straw.page/">straw</a>
+  </p>
+
+  
+  <p align="center">
+  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memo</a>ㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
+                                                                                                                     
+  </p>
 
 <!--
 **otakuhotgirl/otakuhotgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
