@@ -15,7 +15,7 @@
 
   
   <p align="center">
-  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memo</a>ㅤ<a href="https://satoshikacanon.straw.page/">yumeship</a>
+  <a href="https://pronouns.cc/@satorus.beloved">prns.cc</a>ㅤ <a href="https://memoriees.straw.page/">memo</a>ㅤ
                                                                                                                      
   </p>
 
