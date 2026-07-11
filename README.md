@@ -6,7 +6,7 @@
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
 
 <p align="center">
-  ‿‿‿ ㅤˑㅤ۟ ㅤ₊  you  cryin'?  ݂   ۫ 𓍢ִ໋    ̣̣̣ ͜𓏫
+  ‿‿‿ ㅤˑㅤ۟ ㅤ₊  you  cryin'?  ݂   ۫ 𓍢ִ໋     ͜𓏫
 </p>
 
 <p align="center">
