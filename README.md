@@ -1,12 +1,12 @@
 ## 
 　<p align="center">
- 𓏼 ͜͜✚ㅤˑ ㅤ₊    ۫ i'm  here  to  save  you!𝅄
+ ˑ ㅤ₊    ۫ i'm  here  to  save  you!𝅄
 　 </p>
 　
 ![alt text](https://files.catbox.moe/hv12bc.jpg)
 
 <p align="center">
-  ㅤˑㅤ۟ ㅤ₊  you  cryin'?  ݂   ۫ 𓍢ִ໋    
+  ㅤˑㅤㅤ₊  you  cryin'?  ݂    
 </p>
 
 <p align="center">
